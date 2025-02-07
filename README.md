@@ -2,3 +2,6 @@ I am just some guy who is addicted to working on a year 10 school project websit
 
 heres the link
 https://meme-serch-1.tiiny.site/
+
+update;
+tiiny site has had some kind of change in there TOS and they are no longer hosting the site I am looking into what caused this to happen so I can get it back up again
